@@ -22,3 +22,4 @@ Learning Outcomes
 Enhanced ability to create robust financial models
 Improved analytical and strategic decision-making skills
 Practical experience in handling complex financial challenges
+https://course.upgrad.com/share/431bbf7c-ec95-4884-91bc-59347beaf9f9-badge
